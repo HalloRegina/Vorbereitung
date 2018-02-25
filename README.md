@@ -1,2 +1,0 @@
-# Vorbereitung
-Kurs
